@@ -1,0 +1,1 @@
+# mazvtomat2022.com
